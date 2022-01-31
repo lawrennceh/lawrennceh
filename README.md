@@ -1,0 +1,1 @@
+Hola, me llamo Lawrence, soy etudiante de estadística, me gusta aprender mucho, actualmente estoy aprendiendo cerámica y  nuevas técnicas de tejido en ganchillo, actualmente soy deportista y juez de tiro con arco, además que tengo una empresa de estampación, sublimación  y cerámica.
